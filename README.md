@@ -7,3 +7,5 @@
 *mia:* thanks for your help, **caroline** :)
 
 *mia:* **quan**! welcome!
+
+*quan:* hey **mia** and **caroline**, nice to meet y'all!
